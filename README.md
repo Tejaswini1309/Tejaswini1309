@@ -1,4 +1,4 @@
-, I'm Chikoti Sai Tejaswini 👋
+Hi, I'm Chikoti Sai Tejaswini 👋
 
 I'm a first-year undergraduate student at IIT Roorkee, currently exploring different areas of tech.
 
